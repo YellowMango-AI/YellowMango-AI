@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @YellowMango-AI
 
-![dbc9ddab06308d3b75695f6821d621d6](https://github.com/user-attachments/assets/714a18da-a148-4cb5-bdb4-8a9e95d03177)
-
+![6902407bb7b6c121420b7d76a939bfdb](https://github.com/user-attachments/assets/6867dab0-c203-417e-827b-5ef98d37fb53)
 
